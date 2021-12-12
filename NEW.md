@@ -1,1 +1,0 @@
-No cheaters in Tarkov
